@@ -3,4 +3,4 @@ Leveraging the power of data analytics, I embarked on a comprehensive analysis o
 The discussion on the findings and insights can be found in the medium link provided below 
 https://medium.com/@enyoatulukwu/deciphering-hr-attrition-in-healthcare-insights-from-a-medical-institution-da5119fe2cc3
 
-Should you require additional information information kindly reach out via enyoatulukwu@gmail.com or LinkedIn on https://www.linkedin.com/in/sunday-atulukwu-65393164?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app
+Should you require additional information, kindly reach out via enyoatulukwu@gmail.com or LinkedIn on https://www.linkedin.com/in/sunday-atulukwu-65393164?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app
